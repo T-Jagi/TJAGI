@@ -1,0 +1,2 @@
+# TJAGI
+always leran. HUSTLE
